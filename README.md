@@ -1,2 +1,2 @@
 # muhammed-1234
-# tein figma suunittelu sain uus oppia tabletti ja puhelin
+# tein figma suunittelu sain uuta oppia tabletti ja puhelin
